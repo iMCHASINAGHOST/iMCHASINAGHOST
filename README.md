@@ -1,45 +1,57 @@
-![image](https://i.pinimg.com/564x/11/7c/d7/117cd72b89a1b643f17ba8286a1ed51e.jpg)
+<p align="center"><img src="https://i.pinimg.com/564x/11/7c/d7/117cd72b89a1b643f17ba8286a1ed51e.jpg"></p>
 
-~~**"i'd hate to see you with neon eyes."**~~
+<p align="center" style="bold">"i'd hate to see you with neon eyes."</p>
 
+<p align="center">
 ✞
+</p>
 
-**DEV / KIRA / HEROBRINE / SOAP / BILLY**
+<h1 align="center">**DEV / KIRA / HEROBRINE / SOAP / BILLY**</h2>
 
-  __short interest summary:__
+<h3 align="center">short interest summary:</h3>
 
-sleep token , call of duty , cherry crush , studio investigrave , zzz
+<p align="center">sleep token , call of duty , cherry crush , studio investigrave , zzz</p>
 
+<p align="center">
 ✞
+</p>
 
-__pony town boundaries__
+<h2 align="center">pony town boundaries</h2>
 
-  __what im not okay with:__
+<h3 align="center">what im not okay with:</h3>
 
-  **BASIC CRITERIA:**
+<h4 align="center">BASIC CRITERIA:</h4>
 
-      homophobic , transphobic , racist , xenophobic , forcing religion , being weird about skin , skin stealers , proshippers
+<p align="center">homophobic , transphobic , racist , xenophobic , forcing religion , being weird about skin , skin stealers , proshippers</p>
 
-  **FANDOMS:**
+<h4 align="center">FANDOMS:</h4>
 
-      DSMP , Danganronpa , YanSim , Any Viviziepop Content , and possibly others (if i don't like the fandom, i won't int/respond)
+<p align="center">DSMP , Danganronpa , YanSim , Any Viviziepop Content , and possibly others (if i don't like the fandom, i won't int/respond)</p>
 
-  **OTHER:**
+<h4 align="center">OTHER:</h4>
 
-      __don't assume relationships__ .. that's gross and fucking weird
+<p align="center">__don't assume relationships__ .. that's gross and fucking weird</p>
 
-      __disrespecting mine / others prns__ .. u will be hidden forever (this is a threat /hj)
+<p align="center">__disrespecting mine / others prns__ .. u will be hidden forever (this is a threat /hj)</p>
 
-      users __under the age of 16__ interacting with me. (current friends are okay)
+<p align="center">users __under the age of 16__ interacting with me. (current friends are okay)</p>
 
-  __what im okay with:__
+<h3 align="center">what im okay with:</h3>
 
-      __i may be antisocial around new ppl__ ;; but please int !
+<p align="center">__i may be antisocial around new ppl__ ;; but please int !</p>
 
-      depending on skin ;; __c+h r okay__
+<p align="center">depending on skin ;; __c+h r okay__</p>
 
-      __whisps!!__ ;; gets attention faster
+<p align="center">__whisps!!__ ;; gets attention faster</p>
 
-      __ANY cos of my favs__ ;; i will latch onto you so fast /hvyj
+<p align="center">__ANY cos of my favs__ ;; i will latch onto you so fast /hvyj</p>
 
+<p align="center">
 ✞
+</p>
+<p align="center">
+<a href="https://github.com/kittinan/spotify-github-profile" "><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ix4aqa0o51mvtn2nkv3qsr48o&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false"></a>
+</p>
+<p align="center">
+✞
+</p>
