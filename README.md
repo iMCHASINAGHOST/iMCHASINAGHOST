@@ -6,11 +6,11 @@
 ✞
 </p>
 
-<h1 align="center">**DEV / KIRA / HEROBRINE / SOAP / BILLY**</h2>
+<h1 align="center">KIRA / DEVELOPER</h1>
 
 <h3 align="center">short interest summary:</h3>
 
-<p align="center">sleep token , call of duty , cherry crush , studio investigrave , zzz</p>
+<p align="center">sleep token , call of duty , roblox , studio investigrave</p>
 
 <p align="center">
 ✞
