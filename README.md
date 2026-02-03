@@ -10,7 +10,7 @@
 
 <h3 align="center">short interest summary:</h3>
 
-<p align="center">sleep token , call of duty , roblox , studio investigrave</p>
+<p align="center">sleep token , call of duty , roblox , gmm , sonic</p>
 
 <p align="center">
 ✞
